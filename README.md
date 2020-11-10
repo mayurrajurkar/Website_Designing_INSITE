@@ -1,2 +1,6 @@
 # Website_Designing_INSITE
-Website Designing -IN&lt;SITE>
+please dont contribute
+as it is a part of competition 
+Participate are-
+  1) shrikant daund
+  2) mayur rajurkar
